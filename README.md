@@ -1,0 +1,1 @@
+# DogIdol meme configs
